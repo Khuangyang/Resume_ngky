@@ -10,9 +10,9 @@
 - SPM | SMK Methodist ACS Melaka (_December 2012_)
 
 ## Work Experience
-#Auxiliary Police Officer @ SATS Security Ltd (_Febuary 2022 - _April_2024)
+*Auxiliary Police Officer @ SATS Security Ltd (_Febuary 2022 - _April_2024)*
 - Guarding Aircrafts, escorting VIP or NTL, aircrafts security sweep and access control of duty points.
-#Auxiliary Police Officer @ Certis Cisco (_Febuary 2020 - _January_2022)
+*Auxiliary Police Officer @ Certis Cisco (_Febuary 2020 - _January_2022)*
 - Guarding premises, escorting vualuables, reload ATM cash,petrolling premises and access control of duty points.
 **Account Executive (AP & AR) @  Rubber Leisure(M) Sdn Bhd,Melaka (_Febuary 2019 - _January_2020)**
 - Data entry and book-keeping, submit AP payments, produced monthly financial reports and GST reports and banks reconciled.
