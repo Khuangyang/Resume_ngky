@@ -18,10 +18,13 @@
   
 **Account Executive (AP & AR) @  Rubber Leisure(M) Sdn Bhd,Melaka (_Febuary 2019 - _January_2020)**
 - Data entry and book-keeping, submit AP payments, produced monthly financial reports and GST reports and banks reconciled.
+
 **Account Assistant @  Foot Huat Plastic Industries(M) Sdn Bhd,Melaka (_January 2018 - _January_2019)**
 - Data entry and book-keeping, submit AP payments, produced monthly financial reports and GST reports and banks reconciled.
+  
 **Account Clerk @  Impress Esteem Enterprise,Melaka (_January 2017 - _January_2018)**
 - Data entry and book-keeping, submit AP payments, produced monthly financial reports and GST reports and banks reconciled.
+  
 **Audit Assistance @  Sim & Teo Ltd,Melaka (_March 2016 - _July_2016)**
 - Assessed financial statements and records ensure client is compliance with current regulations.
 
