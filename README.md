@@ -1,6 +1,7 @@
 # Data Analyst
 
 #### Technical Skills: Python, SQL, R, Tableau
+
 ## Python Packages: numpy, Pandas, Scipy, seaborn, Matplotlib, statsmodels, scikit-learn
 ## Machine Learning Models: regression (linear, logistic), Naive Bayes, decision trees, random forest, AdaBoost, XGBoost
 
